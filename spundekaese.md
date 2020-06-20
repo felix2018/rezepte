@@ -8,10 +8,12 @@
 * 2 Tl. Senf
 * Pfeffer
 * Salz
+* Paprikapulver 
 * Schnittlauch
-* Tomatenmark
+* 2 El. Tomatenmark
 * Kapern
 * Salzbrezeln
 
 ## Zubereitung
-Gewürzgurken und Zwiebeln möglichst klein schneiden. 
+Gewürzgurken und Zwiebeln möglichst klein schneiden. In einer Schüssel mit Schnittlauch, Tomatenmark, Kapern, Pfeffer und Salz gut mischen. Frischkäse und Qurak zum Schluss hinzufügen
+und alles gut mit einer Gabel mischen. Ggf. noch Butterflöckchen in die Masse einarbeiten 
