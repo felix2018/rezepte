@@ -16,4 +16,5 @@
 
 ## Zubereitung
 Gewürzgurken und Zwiebeln möglichst klein schneiden. In einer Schüssel mit Schnittlauch, Tomatenmark, Kapern, Pfeffer und Salz gut mischen. Frischkäse und Qurak zum Schluss hinzufügen
-und alles gut mit einer Gabel mischen. Ggf. noch Butterflöckchen in die Masse einarbeiten 
+und alles gut mit einer Gabel mischen. Ggf. noch Butterflöckchen in die Masse einarbeiten.
+Den Spundekäse mit Salzbrezeln und einem Riesing aus Rheinhessen servieren. 
