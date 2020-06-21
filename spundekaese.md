@@ -15,7 +15,7 @@
 * Salzbrezeln
 
 ## Zubereitung
-Gewürzgurken und Zwiebeln möglichst klein schneiden. In einer Schüssel mit Schnittlauch, Tomatenmark, Kapern, Pfeffer und Salz gut mischen. Frischkäse und Quark zum 
+Gewürzgurken und Zwiebeln möglichst klein schneiden. In einer Schüssel mit Schnittlauch, Tomatenmark, Kapern, Paprikapulver, Pfeffer und Salz gut mischen. Frischkäse und Quark zum 
 Schluss hinzufügen und alles gut mit einer Gabel mischen. 
 
 Ggf. noch Butterflöckchen in die Masse einarbeiten. Mit Schnittlauch garnieren. 
