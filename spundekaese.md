@@ -20,4 +20,4 @@ Schluss hinzufügen und alles gut mit einer Gabel mischen.
 
 Ggf. noch Butterflöckchen in die Masse einarbeiten. Mit Schnittlauch garnieren. 
 
-Den Spundekäse mit Salzbrezeln und einem Riesing aus Rheinhessen servieren. 
+Den Spundekäse mit Salzbrezeln und einem Riesling aus Rheinhessen servieren. 
